@@ -1,1 +1,7 @@
-# giiaaa
+# giiaa
+# .facebook.com  d5T4PCZWaceb.faccom  TRUE  /  TRUE  1747344149  dpr  1.25
+.facebooebook.com  TRUE  /  TRUE  1747344149  dpr  1.25
+.facebooebook.com  TRUE  /  TRUE  1747344149  dpr  1.25
+.facebooebook.com  TRUE  /  TRUE  1747344149  dpr  1.25
+.faceb8Lh6.fac.AAA.0.01%3A74  xs  10%3A9nrrTgJ7-qmYbQ%3A2%3A1738232454%3A-1%3A74  xs  10%3A9nrrTgJ7-qmYbQ%3A2%3A1738232454%3A-1%3A74  xs  10%3A9nrrTgJ7-qmYbQ%3A2%3A1738232454%3A-1%3A74  xs  10%3A9nrrTgJ7-qmYbQ%3A2%3A1738232454%3A-1%3A74  xs  10%3A9nrrTgJ7-qmYbQ%3A2%3A1738232454%3A-1%3A74  xs  10%3A9nrrTgJ7-qmYbQ%3A2%3A1738232454%3A-1%3A7478%3A%3Aook.com  TRUE  /  TRUE  1747344149  wd  604x6908Y
+.facebook.com  TRUE  /  TRUE  1747344149  wd  604x690
